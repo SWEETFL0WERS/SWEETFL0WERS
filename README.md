@@ -2,6 +2,6 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ[ata](https://starwberrydoggies.atabook.org/)
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 
 ㅤㅤㅤㅤㅤㅤㅤc+h encㅤㅤㅤㅤㅤㅤw2iㅤㅤㅤㅤㅤ
